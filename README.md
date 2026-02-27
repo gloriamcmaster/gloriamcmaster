@@ -2,7 +2,7 @@
 
 I am a first year Aerospace Engineering Major and Material Science Engineering Minor at the UC Irvine. 
 
-Some of my ✨hobbies✨ include reading, writing, and the exploration of new skills/topics of interest. 
+Some of my ✨hobbies✨ include reading, writing and hiking into the unknown!
 <!--
 **gloriamcmaster/gloriamcmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
